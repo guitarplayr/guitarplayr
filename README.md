@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @guitarplayr
 - 👀 I’m interested in ...Idk
-- 🌱 I’m currently learning ... how to play the guitar
+- 🌱 I’m currently learning ... how to pass exams
+
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... don't
 
